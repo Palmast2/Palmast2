@@ -2,7 +2,7 @@
 - 👀 I’m interested in integration systems
 - 🌱 I’m currently learning Computer Systems Engineering
 - 💞️ I’m looking to collaborate on IT solutions
-- 📫 How to reach me jorge.palma8100@alumnos.udg.mx
+- 📫 How to reach me jpalmamayorga@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm cosplayer
 
